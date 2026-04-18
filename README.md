@@ -3,4 +3,4 @@ if it fails please comment so i can fix
 send it to ur freinds 
 tell me and update ideas 
 HAVE FUN!!!!!!!!!!!!!!!!!!!!!
-heres the link:https://sites.google.com/view/everypoke/home?authuser=1
+heres the link:https://sites.google.com/view/go2poke/home?authuser=1
